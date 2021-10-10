@@ -4,8 +4,7 @@
 🇧🇩 Resident of Bangladesh
 😇 Muslim
 
-😐 Studying at Kindergarten
-
+😐 Studying at KG(Kindergarten)
 😪 Love Eating and Sleeping
 
 💔 Born Single
